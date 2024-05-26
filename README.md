@@ -7,6 +7,6 @@
 - 🌱 Started my project management journey in coursera 
 - 👯 Have my project management certifcation posted on my linkedlin account (linkedlin.com/in/abigaililenbodiaye)
 - 🤔 I’m loooking project management internship role
-- 📫 you can reach me @ (ilenabby0601@gmail.com) or linkedlin.com/in/abigaililenbodiaye)
+- 📫 you can reach me (ilenabby0601@gmail.com) or linkedlin.com/in/abigaililenbodiaye)
 - 
 -->
